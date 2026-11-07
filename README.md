@@ -13,7 +13,7 @@
 
 <details>
 <summary><sup>extras</sup></summary>
-<sup> <br>recovering from tt/d slowly, always iwc. i am generally anxious attending events & it causes<br>my tt/d to flare up + many headmates have varying severities of it. bear with me </sup>
+<sup> <br>recovering from tt/d slowly, always iwc. i am generally anxious attending events & it causes<br>my tt/d to flare up + many headmates have varying severities of it. bear with me<br><br>i temp-hide void + eyestrain skins & may hide those who move rapidly, if you're hidden<br> by me during events thats likely why. they make me extremely uncomfortable + i have sensitive eyesight </sup>
 </details>
 
 
